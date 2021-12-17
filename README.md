@@ -1,1 +1,1 @@
-We have an extension to December 24, 2021
+We have an extension till December 24, 2021
